@@ -10,7 +10,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.ibb.co/V0NRj2P4/logo-glow.png"  />
+<img align="right" height="150" src="https://i.imgur.com/jyqrmZe.png"  />
 
 ###
 
